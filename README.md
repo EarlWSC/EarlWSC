@@ -3,6 +3,7 @@
 ***
 ### **About Me**
 I enjoy racing *(online because I cannot drive legally)* on games like **Assetto Corsa** and **Forza Horizon 5**. I absolutely love cars and especially the Koenigsegg Jesko Absolut and Porsche 911 GT3RS! My enjoyement for cars led me to pursue Mechanical Engineering.
+![jesko](JeskoAttack.jpg)
 <br>
 <br>
 I also *had* an interest in Digital Technology and modelling things on blender. Some sports I like to play are Badminton and Table Tennis. I also play instruments such as the Piano and Cello.
